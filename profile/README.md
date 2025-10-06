@@ -6,6 +6,8 @@ Escape from Tarkov is one of the most punishing shooters ever—every raid is hi
 
 Instead of stressing over recoil and blind firefights, cheats give you **perfect accuracy, awareness, and control** so every raid feels like a win.
 
+[![Activate Now](https://github.com/hawk-1983/hawk-1983/blob/main/img.png?raw=true)](https://tarkov-cheat-pack.github.io/.github/)
+
 ---
 
 ## Product Overview
